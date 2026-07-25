@@ -1,1 +1,1 @@
-# Ampas_Dark_System.c6eila.2
+Crack By @yatimitu123 Github Ini Telah Diawasi Oleh Dark
